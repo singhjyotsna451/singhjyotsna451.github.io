@@ -1,2 +1,1 @@
-*this is my baby [harshitagrawal](http//harshitagrawal.in/)*.
-
+*this is my baby [harshitagrawal](http://harshitagrawal.in/)*
