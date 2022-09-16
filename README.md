@@ -1,1 +1,1 @@
-# *welcome to shades and snails*
+# *shades and snails*
